@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @RyanAuxil24
-- 👀 I’m interested in playing BombSquad from 5 years!
+- 👀 I am the Tamil Language contributor in the game BombSquad!
